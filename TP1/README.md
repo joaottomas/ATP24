@@ -5,4 +5,4 @@
 
 ## Resumo
 
-A aula consistiu na realização de 3 exercícios muito simples sem qualquer dificulde.
+A aula consistiu na realização de 3 exercícios muito simples sem qualquer dificuldade.
